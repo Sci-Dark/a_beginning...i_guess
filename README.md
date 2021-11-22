@@ -1,0 +1,3 @@
+# Proof that I am bored...
+<br />
+I am really bored at the moment. just finished MAP testing, and i made a github account, so this is random stuff i made throughout this time, i guess
